@@ -1,2 +1,3 @@
-#Peter
-Dividi Babid Bu
+# Richi
+
+nosotros creamos nuestros propios miedos
