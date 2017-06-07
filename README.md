@@ -1,2 +1,3 @@
-# PeterRepo
-Repositorio de pruebas
+# Richi
+
+nosotros creamos nuestros propios miedos
